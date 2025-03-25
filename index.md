@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Esse é o meu segundo blog. 
 
-Maybe say a some things about yourself.
+O primeiro não deixou rastros.
 
-Or maybe what you plan to blog about.
+Desejo uma melhor sorte a este. 
